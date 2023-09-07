@@ -1,5 +1,3 @@
-Chapter 9: Applying Failure to Professional Growth
-==================================================
 
 Failure can be a catalyst for professional growth and development. In this chapter, we will explore how to apply failure to professional growth, including using failure for career development, setting goals for professional growth through failure, and building skills through failure.
 

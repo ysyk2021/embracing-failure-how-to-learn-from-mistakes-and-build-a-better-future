@@ -1,4 +1,3 @@
-# Chapter 5: Leveraging Failure for Innovation and Creativity
 
 ## The Impact of Failure on Innovation and Creativity
 

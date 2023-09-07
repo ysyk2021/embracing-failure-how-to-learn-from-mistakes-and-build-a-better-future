@@ -1,4 +1,3 @@
-# Chapter 6: Navigating Failure in Relationships
 
 ## Overview
 

@@ -1,5 +1,3 @@
-Chapter 7: Overcoming Fear of Failure
-=====================================
 
 Fear of failure can be a significant obstacle to learning from mistakes and building a better future. It can prevent us from taking risks, trying new things, and pursuing our goals. In this chapter, we will explore the role of fear of failure in avoiding risks, techniques for overcoming fear of failure, and ways to build courage and confidence.
 
