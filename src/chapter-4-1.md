@@ -1,5 +1,4 @@
-Chapter 4: Techniques for Building Self-Awareness in Relation to Failure
-========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into techniques and strategies for developing self-awareness in the context of failure. Understanding how you perceive and react to failure is essential for growth and resilience.
 

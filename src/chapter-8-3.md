@@ -1,5 +1,4 @@
-Chapter 8: Building Courage and Confidence
-==========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we delve into the essential qualities of courage and confidence and how they play a pivotal role in the process of embracing failure and using it as a catalyst for personal and professional growth. These qualities empower individuals to navigate setbacks with resilience and determination, ultimately building a better future.
 

@@ -1,5 +1,4 @@
-Chapter 4: Types of Failure
-===========================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the various types of failure that individuals encounter throughout their lives. Understanding these different categories of failure is essential for learning from mistakes and building a better future.
 

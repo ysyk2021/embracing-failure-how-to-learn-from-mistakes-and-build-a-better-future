@@ -1,5 +1,4 @@
-Chapter 6: The Impact of Failure on Innovation and Creativity
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the profound influence that failure can have on the realms of innovation and creativity. You'll discover how setbacks and mistakes can serve as powerful catalysts for groundbreaking ideas and artistic expressions.
 

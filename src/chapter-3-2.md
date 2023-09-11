@@ -1,5 +1,4 @@
-Chapter 9: Techniques for Developing a Growth Mindset
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore techniques and strategies for cultivating a growth mindset, a crucial mindset for embracing failure as a pathway to learning and building a better future.
 

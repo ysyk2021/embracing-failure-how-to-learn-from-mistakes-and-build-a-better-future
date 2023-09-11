@@ -1,5 +1,4 @@
-Chapter: Balancing Accountability and Blame
-===========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Embracing failure isn't just about understanding our own shortcomings, but also about nurturing a positive environment around those mishaps. In doing so, we're able to genuinely learn from our mistakes and propel ourselves towards a better future. A pivotal component of this equation is knowing the difference between accountability and blame, and ensuring that we balance the two.
 

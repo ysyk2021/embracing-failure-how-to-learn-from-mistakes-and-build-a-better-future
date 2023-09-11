@@ -1,5 +1,4 @@
-Chapter 6: Techniques for Navigating Failure in Relationships
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into practical techniques and strategies to navigate failure within the context of our relationships. Embracing failure is not only about learning from our own mistakes but also about fostering healthier, more resilient connections with others.
 

@@ -1,5 +1,4 @@
-Chapter 5: Using Failure for Career Development
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore how individuals can harness the power of failure as a catalyst for personal and professional growth. Failure is not the end of the road but rather a stepping stone toward a better future, especially when it comes to career development.
 

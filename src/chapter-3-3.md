@@ -1,5 +1,4 @@
-Chapter 8: Overcoming Obstacles to Embracing Failure
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will address the common obstacles that individuals face when attempting to embrace failure as a means of learning and personal growth. Understanding and overcoming these hurdles is essential for building a better future.
 

@@ -1,5 +1,4 @@
-Chapter 7: Building Empathy and Communication Skills
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the essential qualities of empathy and effective communication as tools for learning from mistakes and building a better future. These skills are pivotal in both personal and professional contexts and can significantly impact how we navigate and grow from failures.
 

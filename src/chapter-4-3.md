@@ -1,5 +1,4 @@
-Chapter 7: Building Resilience and Emotional Intelligence
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the essential components of resilience and emotional intelligence and how they play a pivotal role in embracing failure, learning from mistakes, and ultimately building a better future.
 

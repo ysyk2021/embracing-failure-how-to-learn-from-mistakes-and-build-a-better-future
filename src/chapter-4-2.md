@@ -1,5 +1,4 @@
-Chapter 3: Identifying Your Reactions to Failure
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of recognizing and understanding your emotional and cognitive reactions to failure. Self-awareness in this regard is a crucial step towards embracing failure as a path to personal growth and a better future.
 

@@ -1,5 +1,4 @@
-Chapter 4: Using Failure for Personal Development
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the transformative power of failure as a tool for personal growth and self-improvement. Failure is not just an obstacle to be overcome; it can be a catalyst for profound personal development when approached with intention and reflection.
 

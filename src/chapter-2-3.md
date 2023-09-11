@@ -1,5 +1,4 @@
-Chapter 8: The Benefits of Embracing Failure
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the numerous advantages and positive outcomes that arise from embracing failure as a stepping stone to personal growth and building a better future.
 

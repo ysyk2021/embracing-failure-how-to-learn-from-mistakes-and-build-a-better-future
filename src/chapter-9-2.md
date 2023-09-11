@@ -1,5 +1,4 @@
-Chapter 6: Setting Goals for Personal Growth Through Failure
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the vital role that goal setting plays in using failure as a catalyst for personal growth. By establishing clear and meaningful objectives, individuals can harness the lessons learned from failure to propel themselves towards a brighter and more fulfilling future.
 

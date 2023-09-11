@@ -1,5 +1,4 @@
-Chapter 5: Understanding the Impact of Failure on Relationships
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the profound ways in which failure can affect our relationships with others. Failure is an inevitable part of life, and how we navigate and learn from it can significantly impact our connections with friends, family, colleagues, and romantic partners.
 

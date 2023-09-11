@@ -1,5 +1,4 @@
-Chapter 11: Setting Goals for Professional Growth Through Failure
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the process of setting and achieving goals for professional growth by leveraging the lessons learned from failure. Embracing failure can be a powerful catalyst for advancing your career and building a better professional future.
 
